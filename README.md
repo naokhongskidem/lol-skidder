@@ -1,1 +1,1 @@
-# lol-skidder
+# Spam = noob - trash - chicken
